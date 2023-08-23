@@ -16,6 +16,7 @@ I'm deeply interested in the world of cyber and everything it entails. From ethi
 
 ### 🚀 Let's Connect:
 You can reach me via email at harshvala1414@gmail.com 
-Either Dm Me On Instagram :_ https://www.instagram.com/harshCyberSafeGuard/_
+
+Instagram : https://www.instagram.com/harshCyberSafeGuard/
 
 Looking forward to exploring the fascinating world of cybersecurity with you! 🚀🔐
