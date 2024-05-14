@@ -19,4 +19,6 @@ You can reach me via email at harshvala1414@gmail.com
 
 Instagram : https://www.instagram.com/harshCyberSafeGuard/
 
+Linkedin : https://www.linkedin.com/in/harsh-vala-01-harsh/
+
 Looking forward to exploring the fascinating world of cybersecurity with you! 🚀🔐
